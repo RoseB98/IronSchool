@@ -1,4 +1,4 @@
-![img](D:\Downloads\IronSchool-logo\cover.png "optional-title")
+![img](https://www.namecheap.com/logo-maker/app/share?c=iconLeft&l=45379650-6c14-11ed-ac9d-235bb2aed239 "optional-title")
 
 
 <br>
